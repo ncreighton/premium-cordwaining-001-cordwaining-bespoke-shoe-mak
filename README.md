@@ -1,0 +1,2 @@
+# premium-cordwaining-001-cordwaining-bespoke-shoe-mak
+Tired of never finding shoes that fit perfectly? Stop settling for mass-produced pairs that pinch or slip—learn the centuries-old craft of cordwaining and create bespoke shoes molded to your unique feet.  This workshop demystifies the entire process from last making to finishing, giving you step-by-step guidance to craft custom shoes that look and
